@@ -2,7 +2,7 @@ Olá, tudo bem com você?
 
 Sou Gabriela!!!
 
-💕Baiana de coração e alma.💕
+💕Baiana de alma e coração.💕
 
 💻 Estudante / HTML5, CSS e JS.
 
