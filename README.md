@@ -4,7 +4,7 @@ Sou Gabriela!!!
 
 💕Baiana de alma e coração.💕
 
-💻 Estudante / HTML5, CSS e JS.
+💻 Estudante / HTML5, CSS3, JS e Java.
 
 
 
