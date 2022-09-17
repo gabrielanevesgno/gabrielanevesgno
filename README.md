@@ -2,6 +2,8 @@ Olá, tudo bem com você?
 
 Sou Gabriela!!!
 
+Aspirante dev ♥
+
 💕Baiana de alma e coração.💕
 
 💻 Estudante / HTML5, CSS3, JS e Java.
