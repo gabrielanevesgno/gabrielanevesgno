@@ -2,7 +2,7 @@ Olá, tudo bem com você?
 
 Sou Gabriela!!!
 
-Aspirante dev ♥
+♥ Aspirante dev ♥
 
 💕Baiana de alma e coração.💕
 
